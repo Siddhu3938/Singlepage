@@ -1,2 +1,2 @@
 # Singlepage
-My  info
+My  Personal info
